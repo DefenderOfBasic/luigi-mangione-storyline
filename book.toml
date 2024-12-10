@@ -1,0 +1,16 @@
+[book]
+authors = ["Defender"]
+language = "en"
+multilingual = false
+src = "src"
+title = "Luigi Mangione Storyline"
+
+[output.html]
+edit-url-template = "https://github.com/DefenderOfBasic/luigi-mangione-storyline/edit/main/{path}"
+
+[output.html.print]
+enable = false 
+
+[output.html.fold]
+enable = true
+level = 0 
