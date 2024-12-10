@@ -1,5 +1,9 @@
 # Cryptic Video
 
+**DEBUNKED**: I've been told that someone else changed their username to be `PepMangione` on youtube and uploaded that video. That makes sense, I could NOT verify that it was real, it was never linked to from his twitter, his linktree was empty.
+
+----
+
 A video was found on his YouTube that just says:
 
 > All is scheduled, be patient. Bye for now
