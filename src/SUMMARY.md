@@ -7,7 +7,8 @@
 - [Second Alleged manifesto](manifesto-2.md)
 - [Spiral notebook (mentioned in second manifesto)](spiral-notebook.md)
 
-Goodreads account:
+[Goodreads account](https://www.goodreads.com/lnmangione):
+
 - [List of books he's read (including reviews)](goodreads-read.md)
 - ["Currently Reading" list](goodreads-currently-reading.md)
 - ["Want to Read" list](goodreads-want-to-read.md)
