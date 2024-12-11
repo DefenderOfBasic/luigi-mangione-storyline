@@ -6,9 +6,13 @@
 - [Alleged manifesto](manifesto.md)
 - [Second Alleged manifesto](manifesto-2.md)
 - [Spiral notebook (mentioned in second manifesto)](spiral-notebook.md)
-- [Goodreads "Read" book list (including reviews)](goodreads-read.md)
-- [Goodreads "Currently Reading" book list](goodreads-currently-reading.md)
-- [Goodreads "Want to Read" book list](goodreads-want-to-read-list.md)
+
+Goodreads account:
+- [List of books he's read (including reviews)](goodreads-read.md)
+- ["Currently Reading" list](goodreads-currently-reading.md)
+- ["Want to Read" list](goodreads-want-to-read.md)
+
+*Note:* The Goodreads account seems to have been hacked or otherwise taken over by another person, since new books were added to his "to read" list on December 10 and 11 - Luigi was arrested on December 9.
 
 # DEBUNKED
 

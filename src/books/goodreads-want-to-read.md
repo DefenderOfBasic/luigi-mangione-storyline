@@ -1,5 +1,6 @@
 # Goodreads "Want to Read" book list
 
+[Direct link](https://www.goodreads.com/review/list/55354261-luigi?shelf=to-read)
 Ordered from oldest added at the top to most recent added at the bottom.
 
 * Lois Lowry - The Giver
