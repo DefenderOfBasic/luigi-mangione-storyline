@@ -5,6 +5,8 @@
 - [Internet archive of tweets](tweets.md)
 - [Alleged manifesto](manifesto.md)
 - [Second Alleged manifesto](manifesto-2.md)
+- [Spiral notebook (mentioned in second manifesto)](spiral-notebook.md)
+- [Goodreads "Read" book list (including reviews)](goodreads-read.md)
 - [Goodreads "Currently Reading" book list](goodreads-currently-reading.md)
 - [Goodreads "Want to Read" book list](goodreads-want-to-read-list.md)
 
