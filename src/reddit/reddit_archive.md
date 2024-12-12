@@ -20,16 +20,6 @@ I honestly don't recall if they offer TOPS for low-grade slips (haven't followed
 Cervical disc replacements are common and highly successful, but again, I see no reason anyone would risk a lumbar disc replacement. Especially at L5/S1. Just bolt the two vertebra together. It effectively extends the tailbone by one level. The impacts are minimal.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-05-18 03:53:19  
@@ -43,16 +33,6 @@ Permalink: [https://reddit.com/r/Spondylolisthesis/comments/1csp8jd/disc_replace
 The loss of mobility after a 1-level spinal fusion is negligible. This is 35 years after a 2-level: [[https://www.instagram.com/taylor\_knox/](https://www.instagram.com/taylor_knox/](https://www.instagram.com/taylor\_knox/](https://www.instagram.com/taylor_knox/))
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-05-16 17:18:17  
@@ -88,16 +68,6 @@ The loss of mobility from a one-level fusion is negligible. Pro surfer Taylor Kn
 The risk-reward of trying to eek out an extra 5% flexibility at the cost of becoming a human guinea pig is completely unacceptable in my opinion.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-04-30 23:25:46  
@@ -112,16 +82,6 @@ TOPS device is contraindicated with a grade 2/3 spondy, so not an option in your
 When you decide to go through with a fusion you'll do great
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-04-21 16:47:53  
@@ -139,16 +99,6 @@ Couple suggestions:
 3. Plan Z: fake a foot drop or piss yourself. This is the absolute nuclear option, but there comes a point where it's just ridiculous that people won't operate on your broken spine.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-04-21 16:46:10  
@@ -166,16 +116,6 @@ Couple suggestions:
 3) Plan Z: fake a foot drop or piss yourself. This is nuclear option, but there comes a point where it's just ridiculous that people won't operate on your broken spine.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/facepalm  
 
 Date: 2024-04-18 01:55:10  
@@ -189,16 +129,6 @@ Permalink: [https://reddit.com/r/facepalm/comments/1c6bqjz/elon_musk_doesnt_love
 Weird double standard by reddit here regarding treatments for depression. Not sure how this is being downvoted
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/facepalm  
 
 Date: 2024-04-18 01:52:06  
@@ -212,16 +142,6 @@ Permalink: [https://reddit.com/r/facepalm/comments/1c6bqjz/elon_musk_doesnt_love
 This is one of the crazier comment threads I've seen on reddit, that reminds me how much of an echo chamber this site is. How the hell are you being reported for merely suggesting that both "nature" and "nuture" play roles in human behavior. Literally nothing bigoted or controversial about that statement.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/onebag  
 
 Date: 2024-04-08 22:20:12  
@@ -235,16 +155,6 @@ Permalink: [https://reddit.com/r/onebag/comments/1bydcz7/ultralight_packable_day
 It would fit, but I wouldn't do it often tbh. I've squeezed my 15 inch MBP in a few times, but there's literally no space left for a laptop case and the bag is thin so it's kind of anxiety-inducing having zero protection.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/onebag  
 
 Date: 2024-04-08 05:16:45  
@@ -264,16 +174,6 @@ Woah I didn't even know about all these. All pretty similar with some significan
 Freefly16 is probably the best overall imo, and definitely what OP described they're looking for since it's the most packable and still solid for hikes
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/onebag  
 
 Date: 2024-04-07 23:27:48  
@@ -291,16 +191,6 @@ Imo, it's the perfect packable daypack. Of the ultralight mini-packs, it's one o
 I've used it almost daily, whether I'm traveling or at home, for two years. I've taken it on tons of hikes, gotten it drenched, and it's held up great and is the perfect size. Also use it as a gym bag, for groceries, etc. So versatile
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-04-07 08:41:04  
@@ -328,16 +218,6 @@ Fwiw I'm 25 years old with a L5/S1 fusion. It's clear to me that the day my spon
 Only you know in your heart what's important to you and what kind of life you want to live.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-02-05 21:16:38  
@@ -351,16 +231,6 @@ Permalink: [https://reddit.com/r/Spondylolisthesis/comments/1agvmbf/i_feel_somet
 Of course. Also feel free to DM me if you have any questions in the future
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-02-05 21:04:33  
@@ -376,16 +246,6 @@ Yea I had L5/S1 spinal fusion 6 months ago after 1.5 years of failed conservativ
 Everyone's spondy symptoms are different. From childhood until age 23, my back would always ache if I stood too long, but it wasn't too bad. Imo that sort of achy symptom makes sense to medicate if it's bothersome. But once the spine is unstable and you can feel the bones moving/grinding, that isn't something you try to medicate. That's something you go in and fix. I'm sure that will become standard medical knowledge in a decade, but it seems we're a bit early
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-02-05 19:48:30  
@@ -399,16 +259,6 @@ Permalink: [https://reddit.com/r/Spondylolisthesis/comments/1agvmbf/i_feel_somet
 Ah gotcha. Yea I used to get those too in my back when I would move. It wasn't nerve-related, but rather pain in my facet joints due to the instability (basically, the joints above the unstable fracture move more than they should, and the bones grind against each other which causes that zap feeling). After a few months, that went away as the joints just grew bone and became arthritic. (Now they don't hurt but they also don't move at all)
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-02-05 19:36:32  
@@ -426,16 +276,6 @@ I don't usually comment on posts here, but I felt compelled to with yours becaus
 What do you mean by electric shocks? In your back or legs?
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2024-02-04 06:20:05  
@@ -455,16 +295,6 @@ Goods news is that feeling goes away completely after surgery once you're stabil
 Invasive surgical procedures are a last-resort that should not be taken lightly, but in this case your back is broken and you can literally feel it moving. I know it's scary but someone has to tell it like it is. You'll do great.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-10-28 06:09:42  
@@ -484,16 +314,6 @@ For context, I'm 25. my spondy went bad 1.5 years ago when I was 23. Had L5/S1 f
 Sorry you're also a member of this shitty club, but know that you'll be fine whatever you decide
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-10-05 05:39:33  
@@ -507,16 +327,6 @@ Permalink: [https://reddit.com/r/Spondylolisthesis/comments/1703bfz/l1_s5_and_in
 If you are in horrible pain constantly, how are you not bad enough for surgery?
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-08-04 02:50:29  
@@ -530,16 +340,6 @@ Permalink: [https://reddit.com/r/Spondylolisthesis/comments/15hhq9q/athletic_suc
 L5/S1 classic/open TLIF
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-08-04 02:23:01  
@@ -558,16 +358,6 @@ One thing I'll say - with all the success stories vs horror stories, you definit
 In my case I had surgery 2 weeks ago because I had nerve issues. Surgery was painful for the first couple days, but I was shocked that by day 7 I was on literally zero pain meds. Can sit, walk, stand as long as I want and I don't even feel the fusion. Obviously will be awhile until I get into rigorous activity, but it was way less of a big deal than I had anticipated
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Oahu  
 
 Date: 2023-08-01 06:55:01  
@@ -581,16 +371,6 @@ Permalink: [https://reddit.com/r/Oahu/comments/15evzi9/favorite_spot_for_stargaz
 I love stargazing at Ke'ana Point. Also the perfect spot to catch sunset
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-19 19:00:41  
@@ -604,16 +384,6 @@ Permalink: [https://reddit.com/r/Spondylolisthesis/comments/152sxpl/spinal_fusio
 Haven't done surgery, but as long as they're a spine surgeon who does lots of fusions I think that's the relevant thing here
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-19 16:24:03  
@@ -628,16 +398,6 @@ Thanks!
 Have you spoken to a surgeon that said the bowel / bladder issues would resolve with fusion? Just asking because L5/S1 doesn’t innervate the bladder from what I understand. So decompressing those nerves wouldn’t clearly lead to relief. That said, getting stability may allow you to fix your hips / whatever else is causing your problems
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-19 08:27:43  
@@ -653,16 +413,6 @@ Yea I have a 2cm clip at L5/S1. Going in for fusion on Friday.
 Per your MRI, agreed that you don't have terrible nerve compression at L5/S1. Plus, the nerves that go to the bladder/bowel are sacral (S2-S4 I believe?). Do your hips or back feel tight? Your nerve compression might be coming from elsewhere. That said, you might still need the fusion, but it's hard to directly correlate L5/S1 to your bladder issues. It's probably a related compensation elsewhere
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Sciatica  
 
 Date: 2023-07-19 07:12:06  
@@ -682,16 +432,6 @@ Basically, there are still options! Using your body however it is currently capa
 Hope that helps and sorry you have to go through this
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-19 06:54:15  
@@ -709,16 +449,6 @@ As simple as it sounds - have you seen a solid PT and tried really stretching yo
 Your MRI looks pretty good, which is good news. You don't have cauda equina. But the symptoms you're describing suck, and are 100% real.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-15 06:36:34  
@@ -732,16 +462,6 @@ Permalink: [https://reddit.com/r/Spondylolisthesis/comments/1500hll/mri_feedback
 If both legs are going numb and you have severe stenosis, then it sounds like it's time for surgery.. Surgery is scary, but the sooner you get past this, the better. Good luck with the neurosurgeon consult!
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-08 04:20:32  
@@ -755,16 +475,6 @@ Permalink: [https://reddit.com/r/Spondylolisthesis/comments/14to9yj/l5s1_fusion_
 All depends on your spine. Do you know what triggers the pain and numbness? Standing, sitting, laying down, bending forward or backwards?
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-07 21:49:18  
@@ -780,16 +490,6 @@ You'll do great, whatever you decide. Agreed - we have a structural issue with a
 We can't be afraid to live our own lives to the fullest!
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-07 20:08:29  
@@ -805,16 +505,6 @@ Core workouts, lots of walking, and avoid sitting.
 I'm pretty athletic, but haven't done any active sports in the last year - I've been rehabbing with lots of core work. Though I just scheduled surgery for two weeks from now. It's clear to me at this point that while my body can do a lot, it cannot re-stabilize this fracture. Looking forward to being on the side of recovery. With a single-level fusion, there's no reason athletics would be restricted and at this point I pretty much just gotta do it
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-07 20:02:50  
@@ -830,16 +520,6 @@ Yea when I went surfing 1.5 years ago, I experienced sciatica for the first time
 It's all a system, so it's important to keep everything strong and moving smoothly
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-07 19:52:44  
@@ -855,16 +535,6 @@ My right hip has been locked for the last 1.5 years. Hurts when I sit down and m
 I got it loosened up once or twice, but tbh when you're this unstable things lock up for a reason - to provide stability and protect the nerves.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-07 18:06:09  
@@ -882,16 +552,6 @@ Not cauda equina
 If there is anything tight in your hips, maybe check that out with a PT? Not to scare you, but as of last week this intermittent numbness has become constant. I'm terrified of the implications bc well
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2023-07-07 17:30:37  
@@ -909,16 +569,6 @@ I got caught in this loop for a year, all the while putting my life on hold in m
 Surgery is not a 100% guarantee, but that's not something we can control. And once it hits this bad, we probably have to do it anyway. With axial back pain only, it's probably safe to wait until it's unbearable. With sciatica as a symptom, sooner can only be better imo
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2022-11-22 04:37:55  
@@ -938,16 +588,6 @@ Imo you should certainly be able to continue weight-lifting, but being careful w
 Disclaimer - I'm not a doctor
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Supplements  
 
 Date: 2022-10-28 19:57:34  
@@ -961,16 +601,6 @@ Permalink: [https://reddit.com/r/Supplements/comments/vv5qkg/choline_ive_found_m
 Ah gotcha thanks for the background. May add it to my stack eventually. For now just focusing on b-vitamins + choline
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Supplements  
 
 Date: 2022-10-25 20:39:10  
@@ -986,16 +616,6 @@ Sorry you've been experiencing those issues... it's certainly no fun. Glad that 
 Thanks for the breakdown! Out of curiosity, why did you pick lecithin / phosphatidylcholine as your choline source (as opposed to glycerophosphocholine or betaine)? Also, interesting to see Saint Johns Wort and glycine - what's the background behind those supplements? I've seen lots about methylfolate, choline, and creatine when researching the methylation cycle, but not those other two
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Supplements  
 
 Date: 2022-10-23 20:39:15  
@@ -1009,16 +629,6 @@ Permalink: [https://reddit.com/r/Supplements/comments/vv5qkg/choline_ive_found_m
 How's the trial run going so far? I just stumbled on the choline calculator and it recommended 9 egg yolks per day (80% decrease methylfolate score). I'm heterozygous for 3/5 and homozygous for the other 2/5 SNPs 😅... Wondering if I should try out some sort of choline supplementation
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2022-09-27 19:46:35  
@@ -1036,16 +646,6 @@ Glad you were able to get multiple opinions and take the approach that was right
 With a grade 2/3 at 24 y.o. and near-constant burning/twitching in both ankles/calves since March, I don't see myself avoiding this for too long lol. But just trying to learn as much as I can before the surgery comes.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2022-08-15 23:15:38  
@@ -1059,16 +659,6 @@ Permalink: [https://reddit.com/r/Spondylolisthesis/comments/wm1b56/steroid_injec
 Just curious, why did you decide to go with the two-level PLIF over the single level fusion? I've also spoken to two different surgeons and gotten those two different recommendations (not considering surgery right now, but these are the approaches they would take if/when the time comes)
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Spondylolisthesis  
 
 Date: 2022-05-26 06:31:04  
@@ -1085,16 +675,6 @@ The TOPS surgery is a really exciting innovation for preserving spinal motion ve
 Hoping that at some point in the future, they develop a device that can be installed at L5/S1. Given that this is the most common location for isthmic spondylolisthesis, there's certainly demand for it. I can't imagine the tech is more than 5 years out
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-12-22 23:53:21  
@@ -1111,16 +691,6 @@ Dairy Australia Website: [[https://www.dairyaustralia.com.au/about/who-we-are/da
 If you scroll to the bottom of the list of board members, you will find Paul Wood. Wood is not the author of the article, but rather the pharma exec that the story follows.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-12-22 23:50:00  
@@ -1143,16 +713,6 @@ Agreed.
 Source: [https://thecounter.org/about-us/](https://thecounter.org/about-us/)
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/nflmemes  
 
 Date: 2021-12-21 06:28:01  
@@ -1166,16 +726,6 @@ Permalink: [https://reddit.com/r/nflmemes/comments/rl4hle/fantasy_football_hype_
 TEAM APES TOGETHER STRONG 🦍🍌
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-12-08 01:24:51  
@@ -1189,16 +739,6 @@ Permalink: [https://reddit.com/r/agronomics/comments/rayjyi/latest_cenkos_report
 Sign up only asks for name and email, and takes 30 seconds. Would highly recommend doing so to access the report - it covers recent fundraise, NAV, portfolio composition, recent sector activity, and more
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-08-04 17:29:14  
@@ -1223,16 +763,6 @@ ANIC price today: 0.227 GBP
 Basically this prediction isn't bound to any actual due diligence regarding the clean meat sector and should be taken with a grain of salt
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/wheresthebeef  
 
 Date: 2021-06-20 18:33:26  
@@ -1246,16 +776,6 @@ Permalink: [https://reddit.com/r/wheresthebeef/comments/o45dge/growth_media_is_9
 lmao
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/wheresthebeef  
 
 Date: 2021-06-20 18:32:11  
@@ -1269,16 +789,6 @@ Permalink: [https://reddit.com/r/wheresthebeef/comments/o45dge/growth_media_is_9
 Shocked this didn’t get insta-deleted by the mods. I guess as long as it doesn’t contain the actual name of the company, which is:
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-06-11 18:23:45  
@@ -1296,16 +806,6 @@ You're probably right that the NAVPS won't completely flatline with dilution - i
 But still, if a large private investor can invest in a separate company (New Agrarian) vs Agronomics (which will experience dilution), they're going to go with New Agrarian since growth would happen at a faster rate
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/UnethicalLifeProTips  
 
 Date: 2021-06-09 17:03:07  
@@ -1319,16 +819,6 @@ Permalink: [https://reddit.com/r/UnethicalLifeProTips/comments/nvwlqp/ulpt_start
 ULPT: Steal!
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-06-09 16:28:58  
@@ -1342,16 +832,6 @@ Permalink: [https://reddit.com/r/agronomics/comments/nvvz2j/if_agronomics_is_suc
 Don’t have an answer, but would love to hear opinions on this as well.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-06-09 16:11:52  
@@ -1365,16 +845,6 @@ Permalink: [https://reddit.com/r/agronomics/comments/nvcbt5/few_newbie_questions
 Good call. I'm mostly a lurker so wasn't my first instinct haha. Just posted the video along with some notes
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-06-09 16:07:19  
@@ -1410,16 +880,6 @@ Agronomics expects to invest all of the \~63 million pounds of uninvested cash i
 In the US, meat should be on market within 2 years, while fish should be on market this year. Since fish only has one regulator (FDA) while meat has two regulators (USDA and FDA)
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-06-09 03:02:05  
@@ -1439,16 +899,6 @@ I think some of the comments on the New Agrarian post are overly suspicious. Jim
 Definitely waiting to hear more info tho.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-06-09 02:30:02  
@@ -1462,16 +912,6 @@ Permalink: [https://reddit.com/r/agronomics/comments/nqqixk/can_someone_explain_
 Where is the $300m number coming from?
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-06-08 22:55:29  
@@ -1486,16 +926,6 @@ For an up-to-date view of their portfolio see this mornings presentation: [https
 It's more of a high-level overview compared to the pdf's on the site, but the info is more recent
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/agronomics  
 
 Date: 2021-05-29 00:35:14  
@@ -1509,16 +939,6 @@ Permalink: [https://reddit.com/r/agronomics/comments/nfbtlv/where_to_buy_agronom
 If you're trading AGNMF from the US, I'd recommend using E\*TRADE due to the low fees. E\*TRADE only charges $6.95 per trade (penny stock trades fee). Fidelity, on the other hand, charges a $50 foreign settlement fee per trade.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Frat  
 
 Date: 2020-12-10 05:26:13  
@@ -1532,16 +952,6 @@ Permalink: [https://reddit.com/r/Frat/comments/ka3pah/plexiglass/gf8viju/](https
 I second this. I built a table with an acrylic top and bounces exactly like a regular table
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/fantasyfootball  
 
 Date: 2020-11-11 18:28:42  
@@ -1555,16 +965,6 @@ Permalink: [https://reddit.com/r/fantasyfootball/comments/jsbx4w/official_wednes
 Trade Swift for Mostert?
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/fantasyfootball  
 
 Date: 2020-11-11 14:46:09  
@@ -1584,16 +984,6 @@ My other WR's are Thomas, Jefferson, Tee Higgins and Deebo
 Starting Tannehill since I lost Dak earlier this season
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/fantasyfootball  
 
 Date: 2020-10-19 04:34:23  
@@ -1607,16 +997,6 @@ Permalink: [https://reddit.com/r/fantasyfootball/comments/jdjajg/chargers_austin
 Thoughts on trading Justin Jefferson for Ekeler? (10 team non-PPR)
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-09-27 05:22:36  
@@ -1630,16 +1010,6 @@ Permalink: [https://reddit.com/r/BrainFog/comments/9hjwyd/feeling_hopeless_today
 Both. Mostly beer and vodka or rum. I was pledging a fraternity, so I was drinking pretty heavily ~2 nights a week
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-09-26 16:08:35  
@@ -1653,16 +1023,6 @@ Permalink: [https://reddit.com/r/BrainFog/comments/9hjwyd/feeling_hopeless_today
 Not entirely sure. There was a three week stretch where I drank heavily and missed a lot of sleep - afterwards I could never shake off the fog
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-09-22 02:31:31  
@@ -1676,16 +1036,6 @@ Permalink: [https://reddit.com/r/BrainFog/comments/9hjwyd/feeling_hopeless_today
 Yea I feel that - I've tried a few diets and none of them have made a difference. At the same time, I think I probably need to follow through with them longer term, like several months. A lot of the time I feel like we expect a change to happen overnight
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-09-21 15:20:36  
@@ -1699,16 +1049,6 @@ Permalink: [https://reddit.com/r/BrainFog/comments/9hjwyd/feeling_hopeless_today
 Any stomach problems? I think candida is sometimes responsible for the drinking-related cases of brain fog
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/ibs  
 
 Date: 2018-09-02 06:12:46  
@@ -1722,16 +1062,6 @@ Permalink: [https://reddit.com/r/ibs/comments/9c067g/low_fodmap_diet_without_sib
 No worries. BCBS covered my test
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/ibs  
 
 Date: 2018-09-01 17:14:04  
@@ -1745,16 +1075,6 @@ Permalink: [https://reddit.com/r/ibs/comments/9c067g/low_fodmap_diet_without_sib
 In my case my doctor ordered it for me. He ordered the SIBO breath test from CDI, if you're familiar with that one.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/sleep  
 
 Date: 2018-07-25 13:49:04  
@@ -1770,16 +1090,6 @@ I’m 5’ 11” 155 lbs. My average heart rate over the last two months is 51 b
 Definitely. I’m sure the specific sleep stages are pretty inaccurate. It does seem to provide a good visual representation of how my sleep feels, though.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/visualsnow  
 
 Date: 2018-07-11 04:41:42  
@@ -1793,16 +1103,6 @@ Permalink: [https://reddit.com/r/visualsnow/comments/8p5ip4/vsim_visual_snow_sim
 Sorry it was supposed to be a joke about my VS. Sarcasm doesn't convey well over the internet
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-07-11 02:21:23  
@@ -1829,16 +1129,6 @@ I think it helps to latch onto something for motivation. My choice to study CS a
 
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-07-11 01:06:32  
@@ -1852,16 +1142,6 @@ Permalink: [https://reddit.com/r/BrainFog/comments/8vegwt/significant_cognitive_
 Damn
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/visualsnow  
 
 Date: 2018-07-10 04:15:18  
@@ -1875,16 +1155,6 @@ Permalink: [https://reddit.com/r/visualsnow/comments/8p5ip4/vsim_visual_snow_sim
 Huh it's just a picture of a living room
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-07-06 06:34:57  
@@ -1902,16 +1172,6 @@ I was then tested again this year given my symptoms. I just looked back at these
 What do you mean by "after it was too late?"
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-07-06 01:34:17  
@@ -1925,16 +1185,6 @@ Permalink: [https://reddit.com/r/BrainFog/comments/8pl161/i_think_ive_cured_my_b
 Awesome news. After hearing your story and those of others on this subreddit, I might give the diet a try!
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-07-05 05:47:58  
@@ -1948,16 +1198,6 @@ Permalink: [https://reddit.com/r/BrainFog/comments/8pl161/i_think_ive_cured_my_b
 7 years is a long time. Truly glad to hear you've finally found a solution. Just curious, how are things going 26 days after this post?
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-07-05 05:26:46  
@@ -1973,16 +1213,6 @@ A lot of similarities here: I contracted Lyme when I was 13 (7 years ago) and st
 After my symptoms severely worsened last year, I underwent several rounds of blood tests. Two of them included Lyme (I'm not sure which specific tests), but the results were negative. Do you think this definitely rules out Lyme, or is it still possible to have Lyme given negative results?
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/BrainFog  
 
 Date: 2018-07-05 05:16:17  
@@ -2003,16 +1233,6 @@ I'm sure you already know most of this, but basically I just want to say that yo
 Edit: grammar errors from brain fog
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Flipping  
 
 Date: 2018-06-22 22:46:23  
@@ -2026,16 +1246,6 @@ Permalink: [https://reddit.com/r/Flipping/comments/8t4ieg/bought_a_bunch_of_marb
 I think those are used for the board game mancala
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/getdisciplined  
 
 Date: 2018-06-13 19:43:59  
@@ -2053,16 +1263,6 @@ You won't run the risk of getting sucked into the game and ruining the life you'
 Edit: Personally, I agree with you. I find it impossible to play games for an hour at a time. It's hardly enjoyable to game in such small doses. When I play games, I have to set aside literal days to do nothing but just play. Once those days are up, I stop completely and don't play again for a few weeks. This solution works for me, but as you said, it's still playing with fire
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/getdisciplined  
 
 Date: 2018-06-12 02:18:45  
@@ -2076,16 +1276,6 @@ Permalink: [https://reddit.com/r/getdisciplined/comments/8q85eo/question_why_do_
 This has been happening to me since high school (I'm currently in college). Any night I would sleep less than 6 hours - a conscious choice, not unexpected poor sleep - I would feel nauseous. Is this that unusual? I thought it was normal tbh
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/UPenn  
 
 Date: 2018-04-07 03:53:06  
@@ -2107,16 +1297,6 @@ Permalink: [https://reddit.com/r/UPenn/comments/8ab1cl/getting_better_at_cis320/
 Granted, I did pretty poorly on this exam too, so take my advice with a grain of salt
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/bioinformatics  
 
 Date: 2018-04-03 22:14:46  
@@ -2130,16 +1310,6 @@ Permalink: [https://reddit.com/r/bioinformatics/comments/898lbb/essential_biolog
 Thanks! I'll look into this.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/bioinformatics  
 
 Date: 2018-04-03 22:11:55  
@@ -2155,16 +1325,6 @@ Thanks for the response!
 I agree that experience outside the classroom is probably the most important thing for me - I hope to start research once I have a better foundation
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/bioinformatics  
 
 Date: 2018-04-03 06:22:25  
@@ -2180,16 +1340,6 @@ Thanks so much for taking a look at the catalog! These definitely seem like a go
 I don't have a specific interest just yet. Hopefully I'll have a better idea once I've taken a few more courses.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/bioinformatics  
 
 Date: 2018-04-03 05:30:21  
@@ -2203,16 +1353,6 @@ Permalink: [https://reddit.com/r/bioinformatics/comments/898lbb/essential_biolog
 Yea that makes sense. My only prior experience is AP biology, and an introductory course covering molecular bio, cell bio, and genetics. It sounds like I may need to find room for a third or fourth course as well
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/bioinformatics  
 
 Date: 2018-04-03 05:10:06  
@@ -2226,16 +1366,6 @@ Permalink: [https://reddit.com/r/bioinformatics/comments/898lbb/essential_biolog
 (the actual course catalog is [here](https://catalog.upenn.edu/undergraduate/courses/biol/), although I'm sure the fundamental biology courses are roughly the same at any school)
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/buildapcsales  
 
 Date: 2017-11-26 22:45:21  
@@ -2249,16 +1379,6 @@ Permalink: [https://reddit.com/r/buildapcsales/comments/7foxel/cpu_intel_i5_7600
 I'm getting the same error on the full site. Dang
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/buildapcsales  
 
 Date: 2017-11-26 22:30:35  
@@ -2272,16 +1392,6 @@ Permalink: [https://reddit.com/r/buildapcsales/comments/7foxel/cpu_intel_i5_7600
 Is there a link for this? The 7600k doesn't show up for me on google express: [https://express.google.com/u/0/search?q=i5%20&amp;cat=B.529803&amp;m=6136318](https://express.google.com/u/0/search?q=i5%20&amp;cat=B.529803&amp;m=6136318)
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/UPenn  
 
 Date: 2017-07-19 18:59:15  
@@ -2295,16 +1405,6 @@ Permalink: No permalink available
 Got it. Thanks for the help
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/UPenn  
 
 Date: 2017-07-19 16:46:10  
@@ -2318,16 +1418,6 @@ Permalink: No permalink available
 Hm. Doesn't seem like it would be worth the hassle then. Do you know if the frames have adjustable heights at least? Mine did last year, but I was in NCH. 
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/UPenn  
 
 Date: 2017-07-18 19:06:51  
@@ -2344,16 +1434,6 @@ I had a pretty similar schedule my first semester (same thing but I had writing 
 If you want, you can switch one of your math/engineering courses for something easier, but if you plan on doing EE and CIS then this is a pretty standard semester in terms of difficulty
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/megalinks  
 
 Date: 2017-07-04 05:23:34  
@@ -2367,16 +1447,6 @@ Permalink: No permalink available
 I love you
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Flipping  
 
 Date: 2017-06-12 21:15:44  
@@ -2391,16 +1461,6 @@ Nice haul!
 I've also been thinking about flipping iPods when I see them, but I was unsure if I'd be locked out of the iPod without the proper account. Has this ever been an issue for you?
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Flipping  
 
 Date: 2017-06-08 14:23:50  
@@ -2414,16 +1474,6 @@ Permalink: No permalink available
 I went ahead and did this. Thanks for the help!
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Flipping  
 
 Date: 2017-06-07 20:05:06  
@@ -2439,16 +1489,6 @@ An eBay buyer sent me an offer, to which I sent a counteroffer, and then they bo
 The buyer wants me to send the difference directly to their PayPal. Is it ok to do this?
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/ThriftStoreHauls  
 
 Date: 2017-06-05 15:47:15  
@@ -2462,16 +1502,6 @@ Permalink: No permalink available
 Played the series but started at MW2. Figured I may as well try the original
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Flipping  
 
 Date: 2017-06-05 15:43:08  
@@ -2502,16 +1532,6 @@ The estimates are based off previously sold ebay listings.
 Thanks for the help! 
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/Flipping  
 
 Date: 2017-05-30 17:55:15  
@@ -2527,16 +1547,6 @@ Just curious, what kinds of items do you all usually flip from garage sales?
 I know this probably varies, but any tips for things I should keep an eye out for? I'll be going to a few for the first time this weekend.
 
 ---
-
-
----
-
-# Full Reddit Archive
-
-Extracted by hezirel Dec 11 6pm EST ([see PR here](https://github.com/DefenderOfBasic/luigi-mangione-storyline/pull/3)). This markdown page is generated from the directory of reddit comments in the GitHub repo.
-
----
-
 # Comment in r/UPenn  
 
 Date: 2017-01-03 20:54:10  
@@ -2553,7 +1563,3 @@ Wouldn't "after winter break" imply that grades would be returned on the 11th?
 
 
 ---
-
-
----
-

@@ -71,8 +71,8 @@ def concat_md_files(directory, output_file='combined.md'):
 
     # Combine all files
     with open(output_file, 'w', encoding='utf-8') as outfile:
+        outfile.write(create_header_note())
         for date, md_file, content in files_with_dates:
-            outfile.write(create_header_note())
             print(f'Adding: {md_file}')
             # Add file contents
             try:
@@ -81,7 +81,6 @@ def concat_md_files(directory, output_file='combined.md'):
                     new_content = convert_urls_to_links(content)
                     new_content = add_line_spaces_until_content(new_content)
                     outfile.write(new_content)
-                outfile.write('\n\n---\n\n')  # Add separator between files
             except Exception as e:
                 print(f"Error reading {md_file}: {e}")
 
