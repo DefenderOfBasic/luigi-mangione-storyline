@@ -17,6 +17,9 @@
 - [List of books he's read (including reviews)](books/goodreads-read.md)
 - ["Currently Reading" list](books/goodreads-currently-reading.md)
 - ["Want to Read" list](books/goodreads-want-to-read.md)
+# Substack
+
+* [List of Substack accounts he follows](substack/substack.md)
 
 # DEBUNKED
 
